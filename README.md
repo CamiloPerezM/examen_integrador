@@ -2,3 +2,4 @@
 Cristhian Perez
 Nathalia Serna
 Andres Velasquez
+karen gomez
